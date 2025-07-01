@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on simple tasks and projects where I can learn, grow, and make things easier for you
 - 📫 How to reach me: (www.linkedin.com/in/wrngmlqz)
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love organizing things—even my phone gallery has folders!
+- ⚡ Fun fact: I love organizing things—even my phone gallery has folders! (uh, yeah) haha
 
 
 
